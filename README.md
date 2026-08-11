@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Daniel Li!
-  Behavioral Economics and Psychology @ USC '28
-- 📫 How to reach me: danielli0817123@gmail.com
+  Studying Economics, Data Science, and AI @ Northwestern '28
+- 📫 How to reach me: danielli0817123@gmail.com or danielli2028@u.northwestern.edu
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am fluent in Chinese (Mandarin) and English!
 
